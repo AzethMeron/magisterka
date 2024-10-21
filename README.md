@@ -1,0 +1,1 @@
+Wyłącznie w celach archiwizacji.
